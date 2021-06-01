@@ -1,0 +1,1 @@
+Recipe about a vegeterian burger.
